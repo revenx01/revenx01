@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 # 💫 About Me:
-Cyber-Security & Networking Enthusiast<br>
+Cyber-Security & Networking Enthusiast.<br>
 
 
 ## 🌐 Socials:
