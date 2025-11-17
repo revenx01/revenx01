@@ -1,6 +1,3 @@
-## Hi there 👋
-
-# 💫 About Me:
 Cyber-Security & Networking Enthusiast.<br>
 
 
