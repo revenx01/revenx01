@@ -1,6 +1,5 @@
 
 Cyber-Security & Networking Enthusiast.
-![TryHackMe Badge](https://tryhackme.com/api/v2/badges/public-profile?userPublicId=6313647)
 
 
 ## 🌐 Socials:
