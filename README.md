@@ -1,5 +1,5 @@
 
-Cyber-Security & Networking Enthusiast.
+Cyber-Security Enthusiast.
 
 
 ## 🌐 Socials:
